@@ -1,1 +1,1 @@
-Salah aturan ke link ini
+Salah ketik cuk
